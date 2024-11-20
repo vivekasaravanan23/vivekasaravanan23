@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vivekasaravanan@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1xr9aeARhjIb_MfoQ-x8mebFXs0rCyJms?usp=sharing](https://drive.google.com/drive/folders/1xr9aeARhjIb_MfoQ-x8mebFXs0rCyJms?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Cc2C4NGnL8OaeMGCxWUpsijGdVygtyx-/view?usp=sharing](https://drive.google.com/file/d/1Cc2C4NGnL8OaeMGCxWUpsijGdVygtyx-/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
